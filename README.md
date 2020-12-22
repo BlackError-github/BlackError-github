@@ -27,4 +27,4 @@ https://discord.com/channels/@me/502575249314021397)
 
 🌵 Discord Boats: [Discord Boats](https://discord.boats/bot/735651578274513098)
 
-![me](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ76QrxW95aaaEUENDLsPG60d0hbVjLk2HQkQ&usqp=CAU)
+![me](https://www.wallpapertip.com/wmimgs/245-2452987_rain-gif-wallpaper.jpg)
