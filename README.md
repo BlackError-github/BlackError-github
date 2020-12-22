@@ -1,3 +1,5 @@
+
+
 ![me](https://media.discordapp.net/attachments/649756523437752330/790314062457208832/Animated-Gif-Background-1920x1080-Free-Hd-Gif-Wallpapers-.gif?width=721&height=406)
 
 ## Hola a todos/as
@@ -25,4 +27,4 @@ https://discord.com/channels/@me/502575249314021397)
 
 🌵 Discord Boats: [Discord Boats](https://discord.boats/bot/735651578274513098)
 
-![me](https://i.pinimg.com/originals/42/a8/d4/42a8d4625aeb088c45eba5a84ca36325.gif)
+![me](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ76QrxW95aaaEUENDLsPG60d0hbVjLk2HQkQ&usqp=CAU)
