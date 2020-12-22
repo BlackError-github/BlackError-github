@@ -13,4 +13,5 @@
 🤔Únete al servidor soporte del bot, enlace: [Soporte](https://discord.com/invite/Q9tnFt4)
 
 💬 ¿Ocupas ayuda en algo? Dímelo yo con gusto te ayudaré.
+![me](https://media.discordapp.net/attachments/649756523437752330/790315068701147146/14f3b9ba840aad6eebc55b20756d1045.gif)
 
