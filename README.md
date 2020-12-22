@@ -1,4 +1,4 @@
-[me](https://user-images.https://github.com/BlackError-github/BlackError-github.media.discordapp.net/attachments/649756523437752330/790314062457208832/Animated-Gif-Background-1920x1080-Free-Hd-Gif-Wallpapers-.gif?width=721&height=406)
+![me](https://user-images.https://github.com/BlackError-github/BlackError-github.media.discordapp.net/attachments/649756523437752330/790314062457208832/Animated-Gif-Background-1920x1080-Free-Hd-Gif-Wallpapers-.gif?width=721&height=406)
 
 ## Hola a todos/as
 
