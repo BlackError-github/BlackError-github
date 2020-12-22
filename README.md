@@ -16,8 +16,12 @@
 ![me](https://thumbs.gfycat.com/CorruptLinearElk-size_restricted.gif)
 
 ##Enlaces
-Discord: [Contáctame](
+
+👤 Discord: [Contáctame](
 https://discord.com/channels/@me/502575249314021397)
-Top.gg:[Bot](https://top.gg/bot/735651578274513098)
-Discord Boats: [Discord Boats](https://discord.boats/bot/735651578274513098)
+
+🌴 Top.gg:[Bot](https://top.gg/bot/735651578274513098)
+
+🌵 Discord Boats: [Discord Boats](https://discord.boats/bot/735651578274513098)
+
 ![me](https://i.pinimg.com/originals/42/a8/d4/42a8d4625aeb088c45eba5a84ca36325.gif)
