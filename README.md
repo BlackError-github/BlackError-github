@@ -48,4 +48,4 @@ Protective Knight: Es un bot multifuncional, que garantiza la seguridad de tú s
 
 ¡Invitalo ya!
 
-![me](https://media4.giphy.com/media/l3q2XB76CaWPggiNW/giphy.gif)
+![me](https://preview.redd.it/0bb6dqsiab451.gif?s=b0c65596a54a30708da26669da6e79abf3be1680)
