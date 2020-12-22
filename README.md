@@ -1,6 +1,6 @@
 
 
-![me](https://media.discordapp.net/attachments/649756523437752330/790314062457208832/Animated-Gif-Background-1920x1080-Free-Hd-Gif-Wallpapers-.gif?width=721&height=406)
+![me](https://i.pinimg.com/originals/c5/9a/d2/c59ad2bd4ad2fbacd04017debc679ddb.gif)
 
 ## Hola a todos/as
 
