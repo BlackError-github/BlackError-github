@@ -86,6 +86,11 @@ Protective Knight: Es un bot multifuncional, que garantiza la seguridad de tú s
 
 ## Invitalo
 
+| Información |
+|--------|--------|--------|--------|
+| 🔥 Protective Knight: Es un bot multifuncional, que garantiza la seguridad de tú servidor, y muchas funciones más, para poder estar satisfecho con el bot, un bot confiable y muy fácil de usar.|  |24/7| 
+
+
 ¡Invitalo ya!
 
 ![me](https://wallpapercave.com/wp/wp2757956.gif)
