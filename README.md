@@ -15,6 +15,9 @@
 🤔Únete al servidor soporte del bot, enlace: [Soporte](https://discord.com/invite/Q9tnFt4)
 
 💬 ¿Ocupas ayuda en algo? Dímelo yo con gusto te ayudaré.
+![stats](https://github-readme-stats.vercel.app/api?username=BlackError-github)
+
+
 ![me](https://thumbs.gfycat.com/CorruptLinearElk-size_restricted.gif)
 
 
